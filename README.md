@@ -28,3 +28,16 @@ Our assignment this week is to add more dissertations to our newly established c
 Anyway, it took a few hours, but I now have ten titles in my collection. I tried to attach a screenshot to this log, but I am not sure if it will work. If not, I'll add it to the documents folder. I am looking forward to our next meeting on Monday. I think I did a good job, but I think there are a few questions I should ask Ann. It was a bit late to ask, but I should have asked for clarification if I could add titles that were not in the OADTL, all of the ones I picked were but as a part of different collections. I know she said it was fine when we were doing the together, and perhaps it is just me being insecure, but I cannot help but think that I did some part of this wrong. 
 
 [Screenshot 2023-07-16 040351](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/a9a8e5e4-d60d-4eb8-8950-d7dd8888434f)
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+**Week 4 07/23/2023**
+
+A bit late with this week with my log, I am not sure what is happening but I've been feeling sick since Wednesday. I think I am mostly over it now and I was able to still get my fieldwork done. This log is also going to be a bit shorter than the last week.
+
+Anyway, Last monday our meeting with Ann was much shorter. I was the only one there because Lily was sick and we mostly  went over the midterm report that was due on 07/18 and I was glad to get it done early. My assigenment for this week was to add more titles to my collection. Last week due to my misunderstanding I limited myself to titles that were already in the OCLC and DTL but as a part of a different collection but this time around I widen my net more. By using the same process from last week (refer to last week's log) I found ten more titles to include into my collection and I purposely added titles that were not already a part of the the OCLC or found in the DTL. There was something that caught my attnetion while I was working. When there were duplicates in the DTL some of them were labeled as a Thesis Dissertation and others were labeled as Downnloadble Archive Material. I made that I got the OCLC numbers from the these because that was what we suppose to be gathering but what are these downloable materials? Can we add those too or is that going to be something we are going to tackle at a later date?
+
+We have another meeting with Ann tomorrow morning, perhaps I can bring that up with her. I also want to know if we can make anohter collection or if this collection on folklore the one I will be working with for the rest of the DFW. If so I won't be upset about it but it would be a good thing to know. I added screenshots of my collection with the new titles into the documents folder but I include them here too. This time there are two photos. 
+
+![Week 4- DFW- OADTL-part 1](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/cc5282b5-3682-4339-9a9c-7693a58a7c5c)
+![Week 4-DFW-OADTL-part2](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/87eec809-0cee-4508-81d0-7872536d68eb)
+
+
