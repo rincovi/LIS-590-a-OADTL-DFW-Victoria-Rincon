@@ -69,3 +69,8 @@ Anyway, before creating a KBart file you need to make sure that you have the pro
 (https://help.oclc.org/Metadata_Services/WorldShare_Collection_Manager/WorldShare_Collection_Manager_training/WorldShare_Collection_Manager_videos)<---*specifically we watched the video titled Create WorldCat Knowledge Base Collections*
 
 ![Week 7-Screenshot 2023-08-13 042334](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/5ce21c9d-b211-4cfc-a251-e7bfef20ca4c)
+
+**Later**
+After a few hours, it worked! I showed it to Anne this morning (8/14/2023) and she said it looked great!
+
+![Screenshot 2023-08-14 101253](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/febe7c4f-fe6a-4165-805b-9a80ceded4b8)
