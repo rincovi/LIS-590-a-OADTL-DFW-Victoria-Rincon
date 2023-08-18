@@ -1,5 +1,3 @@
-![Week 8-Screenshot 2023-08-18 005704](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/7c01e544-5b59-46a5-a7fd-6d4070960d43)
-![Week 8-Screenshot 2023-08-18 005847](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/e9d5528d-3e79-4b3c-80fe-f2e890977db1)
 # LIS-590-a-OADTL-DFW-Victoria-Rincon "(weekly reflections)"
 **Week One Reflection 06/26/2023**
 
