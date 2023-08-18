@@ -1,3 +1,5 @@
+![Week 8-Screenshot 2023-08-18 005704](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/7c01e544-5b59-46a5-a7fd-6d4070960d43)
+![Week 8-Screenshot 2023-08-18 005847](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/e9d5528d-3e79-4b3c-80fe-f2e890977db1)
 # LIS-590-a-OADTL-DFW-Victoria-Rincon "(weekly reflections)"
 **Week One Reflection 06/26/2023**
 
@@ -74,3 +76,13 @@ Anyway, before creating a KBart file you need to make sure that you have the pro
 After a few hours, it worked! I showed it to Anne this morning (8/14/2023) and she said it looked great!
 
 ![Screenshot 2023-08-14 101253](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/febe7c4f-fe6a-4165-805b-9a80ceded4b8)
+-----------------------------------------------------------------------------------------------------------------------------
+**Week 8 (08/13/2023-08/19/2023)**
+I have mixed feelings about this week. Not bad ones, of course, I'm mostly just relieved that I completed my collections but also a bit sad about my DFW being over. So in this last log, I will go over what I did for my last week. On Monday we had our last meeting with Ann and talked about our collections and what we were going to turn in. Ann showed us how we were supposed to publish/ promote our collections but stressed to make sure our properties were all correct before putting it out, once it was it would not really be possible to go back and fix it. You can still make edits while the promotion request is still pending but once it goes through, not possible. Currently, all of my collections are still pending but I am happy with them. Ann also assured us that the subject matter of our collections was perfectly fine and also offered to be a reference for Lily and me. 
+
+When it came to my collections, in the end, I published four collections. My folklore collection and three others that covered the subject of the arts. The first one was a general collection, I chose any title that was about the arts from dance, paintings, and music to topics like pedagogy and art movements. If it was relevant to the arts overall I picked it. Then there was my art history collection, it was a bit tougher. Lily assured me that art history was a wide topic but I tried to be as selective as I could and I think I succeeded in making sure they were all relevant. In my last log, I was debating whether or not to combine the two collections, especially since I was feeling a bit anxious about the art history collection. In the end, I decided not to, and funny enough the night I was going to submit my collections I ended up creating another one. I figured this is the DTL and I couldn't forgive myself if I didn't make at least one collection that was related to religion. So I made a collection about religion in the arts and I think I did pretty well with that too, but I combed through each article to make sure they were relevant. Also, any articles I didn't see in my first art collection that happened to be in these two newer ones I ended up adding them which boosted my number of titles from 50 to 93. It was stressful but I'm happy with my work and I'm glad I had this experience. All that is left to do now is focus on my reflection. 
+
+![Week 8-Screenshot 2023-08-18 005704](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/a4844865-6d38-4a43-bc01-f6d12bb218c2)
+![Uploading Week 8-Screenshot 2023-08-18 005847.png…]()
+![Week 8-Screenshot 2023-08-18 005734](https://github.com/rincovi/LIS-590-a-OADTL-DFW-Victoria-Rincon/assets/131549576/6214baad-80f6-43a3-9bd4-dbacb25ae856)
+![Uploading Week 8-Screenshot 2023-08-18 005804.png…]()
